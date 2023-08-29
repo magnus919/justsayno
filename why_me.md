@@ -1,0 +1,1 @@
+I'm sorry, but I have to decline this meeting. Based on the agenda, it's unclear what I'm expected to contribute. If you believe this decision was made in error, please clarify the agenda so that my role in its success is more clearly understandable. Thank you.
