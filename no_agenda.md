@@ -1,0 +1,1 @@
+I'm sorry, but I'm declining this meeting because this meeting has no agenda or objectives, so I can't tell if this will be the most effective use of my time. If you believe this is an error, please update the invitation with clear objectives and I'm happy to have another look.
